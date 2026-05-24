@@ -3,8 +3,8 @@
  <p align="center">     <p align="center"> ◟ 
    
  <p align="center">. hello, call me sil ( jack, mimi, ) any of those are okay !  ㅤa minor and single 　　　　 
- .　　. 　 ˚　.　　　　　 . 　　　 　˚　　　　 　.   　　˚　　 　　*　　 　　　　　.　　.　　　　˚ 　　　　 ˚　.˚　　　　　　　.　　. 　
-  ㅤ𐔌 ㅤ <p align="center"> i like weak hero class, i stan loona  . I play games like: Roblox, PT, MC, Rhythm Hive, etc.
+ .　　. 　 ˚　.　　　　　 . 　　　 　˚　　　 　　　　　.　　.　　　　˚ 　　　　　　　　.　　. 　
+ ㅤ <p align="center"> i like weak hero class, i stan loona  . I play games like: Roblox, PT, MC, Rhythm Hive, etc.
 
 <p align="center">𝘈𝘉𝘖𝘜𝘛 𝘐𝘕𝘛𝘌𝘙𝘈𝘊𝘛𝘐𝘕𝘎: ㅤ༚ int and c*h encouraged !! i love ppl that int and c*h | but if im hosting w2i please !
 
