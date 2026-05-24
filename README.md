@@ -1,4 +1,11 @@
-## Hi there 👋
+## 
+ <p align="center"><img width="145" height="20" alt="17796656927343585670448908548010" src="https://github.com/user-attachments/assets/fc32888c-dadd-4b7d-bace-b2487f0e6a2f" />   
+ <p align="center">     <p align="center"> ◟ 
+   
+ <p align="center">  hello, call me sil ( jack, mimi, ) any of those are okay !  ㅤa minor and single 　　　　 　　　.　　. 　 ˚　.　　　　　 . 　　　 　˚　　　　 　.   　　˚　　 　　*　　 　　　　　.　　.　　　　˚ 　　　　 ˚　.˚　　　　　　　.　　. 　
+  <p align="center">   ㅤ𐔌 ㅤ i like weak hero class, i stan loona  . I play games like: Roblox, PT, MC, Rhythm Hive, etc.
+
+<p align="center">𝘈𝘉𝘖𝘜𝘛 𝘐𝘕𝘛𝘌𝘙𝘈𝘊𝘛𝘐𝘕𝘎: ㅤ༚ int and c*h encouraged !! i love ppl that int and c*h | but if im hosting w2i please !
 
 <!--
 **leftaloneintherain/leftaloneintherain** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
